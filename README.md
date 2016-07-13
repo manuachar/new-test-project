@@ -1,2 +1,2 @@
 # new-test-project
-Your placeholder text
+Lorem ipsum dolor sit amet, consectetur adipiscing elit. Naturales divitias dixit parabiles esse,
