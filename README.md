@@ -1,2 +1,2 @@
 # new-test-project
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Naturales divitias dixit parabiles esse,
+Consequatur summas voluptates non modo parvo, sed per me nihilo, si potest; Itaque fecimus.
